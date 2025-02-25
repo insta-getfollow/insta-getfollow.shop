@@ -10,7 +10,7 @@ Hedef hesaba en son takip gönderen kişileri görme.
 Hedef hesabın bütün paylaşımlarındaki yorumları görme.
 
 
-Instagram analiz aracını edinmek istiyorsanız fiyatı şuan sadece 300TL. Bizle iletişime geçmek istersenin websitemizdeki numaradan bizle iletişim sağlayabilirsiniz.
+Instagram analiz aracını edinmek istiyorsanız fiyatı şuan sadece 300TL. Bizle iletişime geçmek isterseniz websitemizdeki numaradan bizle iletişim sağlayabilirsiniz.
 
 
 ʙɪʟɢɪʟᴇɴᴅɪʀᴍᴇ: ᴍᴀᴀʟᴇsᴇғ ɢᴇʀɪ ɪᴀᴅᴇ ʏᴀᴘᴍıʏᴏʀᴜᴢ, ᴇɢ̆ᴇʀ ʙɪʀ sıᴋıɴᴛı ʏᴀşᴀʀsᴀɴıᴢ ʙɪᴢʟᴇ ɪʟᴇᴛɪşɪᴍᴇ ɢᴇᴄ̧ᴇʙɪʟɪʀsɪɴɪᴢ.
