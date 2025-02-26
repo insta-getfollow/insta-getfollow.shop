@@ -1,7 +1,7 @@
 # insta-getfollow.shop
 insta-getfollow.shop nedir ve neler yapabilir?
 
-insta-getfollow.shop bir Instagram analiz aracıdır. Sizin hesabınıza giriş yaparak diğer kullanıcıları analiz etmenizi sağlar. Bilgileriniz asla paylaşılmaz. En iyi özelliği örnek olarak seçtiğiniz bir hesabın en son ne zaman aktif olduğunu görebilir ve en son kimin takip ettiğini öğrenebilirsiniz.
+insta-getfollow.shop bir Instagram analiz aracıdır. Sizin hesabınız üzerinden diğer kullanıcıları analiz etmenizi sağlar. Bilgileriniz asla paylaşılmaz. En iyi özelliği örnek olarak seçtiğiniz bir hesabın en son ne zaman aktif olduğunu görebilir ve en son kimin takip ettiğini öğrenebilirsiniz.
 
 
 ---------------------------------------------------------------------------------------------------------------------------
