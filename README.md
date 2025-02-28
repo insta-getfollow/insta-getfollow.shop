@@ -22,4 +22,4 @@ Hedef hesabın bütün paylaşımlarındaki yorumları görme.
 Instagram analiz aracında daha fazla özelliklere sahip olmak istiyorsanız şuan fiyatı 300TL.
 
 
-ʙɪʟɢɪʟᴇɴᴅɪʀᴍᴇ: ᴍᴀᴀʟᴇsᴇғ ɢᴇʀɪ ɪᴀᴅᴇ ʏᴀᴘᴍıʏᴏʀᴜᴢ, ᴇɢ̆ᴇʀ ʙɪʀ sıᴋıɴᴛı ʏᴀşᴀʀsᴀɴıᴢ ʙɪᴢʟᴇ ɪʟᴇᴛɪşɪᴍᴇ ɢᴇᴄ̧ᴇʙɪʟɪʀsɪɴɪᴢ.
+ʙɪʟɢɪʟᴇɴᴅɪʀᴍᴇ: ᴍᴀᴀʟᴇsᴇғ ɪᴀᴅᴇ ʏᴀᴘᴍıʏᴏʀᴜᴢ, ᴇɢ̆ᴇʀ ʙɪʀ sıᴋıɴᴛı ʏᴀşᴀʀsᴀɴıᴢ ʙɪᴢʟᴇ ɪʟᴇᴛɪşɪᴍᴇ ɢᴇᴄ̧ᴇʙɪʟɪʀsɪɴɪᴢ.
